@@ -1,5 +1,5 @@
 # isackcorn (Vasiliy L.)
-### Contacts:
+### Контакты:
 
 Telegram: @isackcorn
 
